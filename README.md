@@ -14,6 +14,6 @@ Here is a sneak peek at my public highlights:
 
 **Fun Facts:**
 * 🎓 I study Computer Science at the University of West Florida
-* 💻 I enjoy grinding NeetCode problems in my free time
+* 💻 Playing R6 in my freetime or studying System Design.
 * 🎵 Favorite Artist: Slayr, Dc The Don, Vax
 * 🏋️‍♂️ **Hobbies:** working out, gaming, building things, anime
